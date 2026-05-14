@@ -1,4 +1,4 @@
-# 
+# custom low cap gem sniper bot | meme-coin-scanning + trailing-stop offers the most advanced low cap gem sniper bot, with meme-coin-scanning and trailing-stop. Ideal for
 
 
 
